@@ -2,4 +2,4 @@
 
 Hi to whoever is reading!
 
-Why? let me know at sgagar2@uic.edu
+Let me know why you are reading this at sgagar2@uic.edu.
